@@ -1,0 +1,1 @@
+# researxh_details
